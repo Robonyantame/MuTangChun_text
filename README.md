@@ -6,6 +6,9 @@
 这是他的直播间！给我！火速！关注他！！！  
 https://live.bilibili.com/4260248  
 
+## 感谢名单
+- 白漓 (大部分的文本提供者)
+
 ## 友情链接
 - 花黎Flowery
   -  https://live.bilibili.com/4799641
