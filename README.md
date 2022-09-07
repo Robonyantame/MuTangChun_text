@@ -15,6 +15,7 @@ https://live.bilibili.com/4260248
 - 云落 (2022年7月8日 13点35分 在 花黎粉丝群发的文本)
 - [康娜卡姆依](https://github.com/iKangnakamuyi) (更正了“关于提交文本”条目里的内容，十分感谢 > < ！！！)
 - 泠绮 （部分文本的原创修改和文本提供）（绝大部分原创）（我的kami！！！）
+- [ledengmig29](https://github.com/ledengmig29) (2022/09/07 在我群里发病，我顺便偷一点出来)~~群里成员公认死变态~~
 
 ## 友情链接
 - 花黎Flowery
